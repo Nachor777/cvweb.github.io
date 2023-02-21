@@ -18,7 +18,7 @@ También tengo habilidades en gestión de proyectos, lo que me permite planifica
 Soy una persona muy sociable y siempre trato de resolver problemas de manera creativa y efectiva. Para mí, es muy importante agregar valor en cualquier lugar donde me desempeñe, continuar mi crecimiento profesional y contribuir al desarrollo de los demás. Si buscas a alguien con habilidades interpersonales fuertes, un enfoque en los resultados y una actitud positiva, entonces ¡soy la persona que buscas! <br>
 <br>Me encantaría tener la oportunidad de trabajar contigo. Si estás buscando contratar a alguien para un trabajo, no dudes en contactarme. Estoy disponible y dispuesto a discutir cualquier oportunidad laboral que pueda haber.
 
-Puedo ofrecerte mis habilidades y experiencia en [campo relacionado con el trabajo], y estoy seguro de que podríamos trabajar juntos para lograr los objetivos de tu empresa. Me considero una persona comprometida y trabajadora, y siempre estoy dispuesto a aprender y crecer en mi carrera.
+Puedo ofrecerte mis habilidades y experiencia, y estoy seguro de que podríamos trabajar juntos para lograr los objetivos de tu empresa. Me considero una persona comprometida y trabajadora, y siempre estoy dispuesto a aprender y crecer en mi carrera.
 
 Si te gustaría hablar más sobre cómo puedo contribuir a tu equipo, por favor, no dudes en contactarme. Puedes hacerlo a través de [correo electrónico/teléfono/red social], y estaré encantado de responder cualquier pregunta o discutir cualquier detalle que necesites.
 
